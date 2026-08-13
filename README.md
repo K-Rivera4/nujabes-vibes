@@ -1,1 +1,1 @@
-Low-fi beats in honor of the late, great Nujabes and Samurai Champloo. Used for Android mobile development. 
+Low-fi beats in honor of Samurai Champloothe and the late, great Nujabes. Used for Android mobile development. 
